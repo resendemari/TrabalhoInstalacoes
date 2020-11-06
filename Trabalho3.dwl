@@ -1,3 +1,3 @@
-resen
-LAPTOP-QKP67PIQ 
-sexta-feira, 6 de novembro de 2020  10:48:05
+LuccaViccini
+DESKTOP-Q6P4H8N 
+Friday, November 6, 2020  3:02:19 PM
